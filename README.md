@@ -1,0 +1,1 @@
+Panda swap Plataforma líder para el intercambio descentralizado de criptomonedas en la red de Solana. Ofrece una interfaz intuitiva, cotizaciones en tiempo real y transacciones rápidas y seguras integradas con Phantom Wallet. La solución definitiva para trading de SOL, BTC, ETH y USDT con total transparencia.
